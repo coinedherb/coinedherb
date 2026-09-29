@@ -1,4 +1,4 @@
-<p align="center"> <img width="748" height="536" alt="dumb again!" src="https://github.com/user-attachments/assets/e77e355c-c74a-483f-94c0-3bc3ff607cef" />
+<p align="center"> <img width="736" height="414" alt="peter" src="https://github.com/user-attachments/assets/14b2f1e9-da5d-4b86-a353-08970c109741" />
 <p align="center">
   <a href="https://cloverlxcky.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
