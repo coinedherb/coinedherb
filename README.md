@@ -4,5 +4,5 @@
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
   <a href="https://www.pinterest.com/cryingcoinself">pinterest</a>
 ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
-  <a href="https://en.pronouns.page/@fireoinylxck">prns page</a>
+  <a href="https://en.pronouns.page/@ACCEPTABLECOIN">prns page</a>
 </p>
