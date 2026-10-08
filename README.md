@@ -1,4 +1,4 @@
-<p align="center"> <img width="578" height="471" alt="Coiny (Bfdi_ Branches) _3" src="https://github.com/user-attachments/assets/ce092ee3-c718-47cc-a44d-fafa8f8bb65d" />
+<p align="center"> <img width="735" height="536" alt="coiyjjwe" src="https://github.com/user-attachments/assets/7449d01f-51a5-4ac1-8827-4962d89837cf" />
 <p align="center">
   <a href="https://basil-sunny.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
