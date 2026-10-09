@@ -3,4 +3,6 @@
   <a href="https://basil-sunny.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
   <a href="https://en.pronouns.page/@ACCEPTABLECOIN">prns</a>
+⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
+  <a href="https://coinedbasil.straw.page">check ts pls</a>
 </p>
