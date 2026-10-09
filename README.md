@@ -2,7 +2,5 @@
 <p align="center">
   <a href="https://basil-sunny.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
-  <a href="https://www.pinterest.com/cryingcoinself">pinterest</a>
-⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
-  <a href="https://en.pronouns.page/@ACCEPTABLECOIN">prns page</a>
+  <a href="https://en.pronouns.page/@ACCEPTABLECOIN">prns</a>
 </p>
