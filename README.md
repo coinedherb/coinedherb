@@ -1,5 +1,5 @@
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fcoinedherb%2Fcoinedherb"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcoinedherb%2Fcoinedherb&label=metal%20travelers&countColor=%23fac898&style=flat" /></a>
 <p align="center"> <img width="755" height="536" alt="``" src="https://github.com/user-attachments/assets/92c5e40f-492a-4e66-b4de-6ae3bbea0d57" />
-<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fcoinedherb%2Fcoinedherb"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcoinedherb%2Fcoinedherb&label=metal%20travelers&labelColor=%23697689&countColor=%23fac898" /></a>
 <p align="center">
   <a href="https://basil-sunny.atabook.org">ata</a>
 ⠀ ⠀ ⠀ ⠀ ⠀⸝⸝⠀ ⠀ ⠀ ⠀ ⠀
